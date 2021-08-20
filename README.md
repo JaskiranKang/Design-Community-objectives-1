@@ -1,5 +1,5 @@
 # Design-Commmunity-objectives
-Purpose: Help us mature the design profession so we have strong, consistent ways of working to help us deliver the thing things and deliver them as efficient and effecively as possible.
+Purpose: Help us mature the design profession so we have strong, consistent ways of working to help us deliver as efficient and effecively as possible.
 
 # What is this?
 Fistly this is an experiement and I'd like to try it out. I'm Jaskiran Kang, Head of Design at DfE and i'm responsible for service design and interaction design profession. I'd like to help faciliate the join up of all our designers and create an environment where we work together on common goals to help us all grow and develop to be the best designers we can. Learning and developing and maturing our design profession means we stand a chance to contribute, have impact so that we help to deliver services which work for end users.
